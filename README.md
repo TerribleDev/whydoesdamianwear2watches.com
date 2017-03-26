@@ -1,2 +1,2 @@
-# whydoesdamianwear2watches.info-
+# whydoesdamianwear2watches.com
 why does Damian Edwards wear two watches?
