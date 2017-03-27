@@ -1,2 +1,6 @@
 # whydoesdamianwear2watches.com
-why does Damian Edwards wear two watches?
+Why does Damian Edwards wear two watches?
+
+Short answer: He has two wrists
+
+Long answer: http://whydoesdamianwear2watches.com
